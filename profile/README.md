@@ -1,3 +1,3 @@
-# Cyber Kultura
+# CYBER KULTURA
 
 ## Technology Center
